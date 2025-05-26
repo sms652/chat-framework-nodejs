@@ -1,6 +1,6 @@
-# Code of Conduct
+# Code of Conduct brunei 547890: WhatsApp number 6732367833 login login code 
 
-## Our Pledge
+## automatic SMS< 768904 send code in email dhlcarlgoi@gmail.comg
 
 In the interest of fostering an open and welcoming environment, we as
 contributors and maintainers pledge to making participation in our project and
@@ -9,18 +9,18 @@ size, disability, ethnicity, gender identity and expression, level of
 experience, education, socio-economic status, nationality, personal appearance,
 race, religion, or sexual identity and orientation.
 
-## Our Standards
+## Our Standards 📞07073792853 
 
 Examples of behavior that contributes to creating a positive environment
-include:
+include:accessibility🇧🇳
 
 *   Using welcoming and inclusive language
 *   Being respectful of differing viewpoints and experiences
 *   Gracefully accepting constructive criticism
 *   Focusing on what is best for the community
 *   Showing empathy towards other community members
-
-Examples of unacceptable behavior by participants include:
++6732367833
+Examples of unacceptable behavior by participants include📥
 
 *   The use of sexualized language or imagery and unwelcome sexual attention or
     advances
@@ -32,7 +32,7 @@ Examples of unacceptable behavior by participants include:
     professional setting
 
 ## Our Responsibilities
-
+SMS inbox brunei number verification code 
 Project maintainers are responsible for clarifying the standards of acceptable
 behavior and are expected to take appropriate and fair corrective action in
 response to any instances of unacceptable behavior.
@@ -43,7 +43,7 @@ not aligned to this Code of Conduct, or to ban temporarily or permanently any
 contributor for other behaviors that they deem inappropriate, threatening,
 offensive, or harmful.
 
-## Scope
+## Scope 8889541
 
 This Code of Conduct applies both within project spaces and in public spaces
 when an individual is representing the project or its community. Examples of
@@ -56,8 +56,8 @@ This Code of Conduct also applies outside the project spaces when the Project
 Steward has a reasonable belief that an individual's behavior may have a
 negative impact on the project or its community.
 
-## Conflict Resolution
-
+## Conflict Resolution dhlcarlgoi@gmail.comg
+recover numbers
 We do not believe that all conflict is bad; healthy debate and disagreement
 often yield positive results. However, it is never okay to be disrespectful or
 to engage in behavior that violates the project’s code of conduct.
@@ -69,13 +69,13 @@ dispute. If you are unable to resolve the matter for any reason, or if the
 behavior is threatening or harassing, report it. We are dedicated to providing
 an environment where participants feel welcome and safe.
 
-Reports should be directed to *[PROJECT STEWARD NAME(s) AND EMAIL(s)]*, the
-Project Steward(s) for *[PROJECT NAME]*. It is the Project Steward’s duty to
+Reports should be directed to *[BRUNEI ROYAL SMS inbox verification code sent]*, the
+Project Steward(s) for *[PROJECT SMS number]*. It is the Project Steward’s duty to
 receive and address reported violations of the code of conduct. They will then
 work with a committee consisting of representatives from the Open Source
 Programs Office and the Google Open Source Strategy team. If for any reason you
 are uncomfortable reaching out to the Project Steward, please email
-opensource@google.com.
+dhlcarlgoi@gmail.com
 
 We will investigate every complaint, but you may not receive a direct response.
 We will use our discretion in determining when and how to follow up on reported
@@ -90,4 +90,4 @@ harassment or threats to anyone's safety, we may take action without notice.
 
 This Code of Conduct is adapted from the Contributor Covenant, version 1.4,
 available at
-https://www.contributor-covenant.org/version/1/4/code-of-conduct.html
+https://www.contributor-covenant.org/version/1/4/code-of-conduct.html 4552876
